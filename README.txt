@@ -1,3 +1,0 @@
-Emily Bacatan
-
-Atlanta Falcons
